@@ -1,1 +1,1 @@
-	www.ViajesFronteraFrontera.github.com
+	www.ViajesFronteraFrontera.com
